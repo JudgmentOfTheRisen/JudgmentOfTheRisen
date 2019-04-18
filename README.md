@@ -1,1 +1,1 @@
-# JudgmentOfTheRisen
+# JudgmentOfTheRisen.github.io
